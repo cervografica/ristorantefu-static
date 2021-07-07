@@ -1,0 +1,1 @@
+ristorantefu-static
